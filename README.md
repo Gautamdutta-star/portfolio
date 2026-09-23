@@ -99,8 +99,7 @@ I enjoy learning new technologies, developing practical applications, and contin
 ## 📬 Connect With Me
 
 - 🐙 **GitHub:** [Gautamdutta-star](https://github.com/Gautamdutta-star)
-- 💼 **LinkedIn:** Add your LinkedIn profile here
-
+- 💼 **LinkedIn:**[visit my Linkdin](https://www.linkedin.com/in/gautam-dutta-55b3123b0)
 ---
 
 ## ⭐ Feedback
